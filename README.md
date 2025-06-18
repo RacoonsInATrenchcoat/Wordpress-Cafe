@@ -26,6 +26,9 @@ Beans:
 
 4, https://www.freepik.com/free-vector/hand-drawn-coffee-label-design-template_33025876.htm#fromView=search&page=1&position=3&uuid=ec396777-0632-45ef-bb39-eca05fd4ec57&query=Coffee+Package+Mockup
 
+Before/After:
+1, https://www.freepik.com/free-photo/disappointed-displeased-man-keeps-hands-head-smirks-face-suffers-from-headache-has-dissatisfied-expression_11488971.htm#fromView=search&page=1&position=2&uuid=91266fb7-5261-4384-b08b-54c9c34ea3d6&query=%40wayhomestudio+sad+yellow
+2, https://www.freepik.com/free-photo/overjoyed-triumphing-hipster-clenches-fist-exclaims-with-satisfaction-holds-takeaway-coffee-has-headphones-neck_11487844.htm#fromView=search&page=1&position=15&uuid=5ba46c7e-c2fd-4ef1-b148-f401d81747c0&query=%40wayhomestudio+happy+yellow
 
 Events & Newsletter: 
 
