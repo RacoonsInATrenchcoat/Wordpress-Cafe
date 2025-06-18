@@ -2,8 +2,13 @@
 
 This readme is to link the assets used and provide attributing:
 
-Landing page background: https://www.freepik.com/premium-ai-image/cup-coffee-middle-coffee-beans-full-background_143290079.htm
+Landing page background: 
+
+https://www.freepik.com/premium-ai-image/cup-coffee-middle-coffee-beans-full-background_143290079.htm
+
 Coffee image is mixed with:
+
+
 1, https://www.freepik.com/free-vector/cafe-coffee-house-pattern-vector_3438011.htm#fromView=search&page=1&position=12&uuid=e22ccf75-6707-4df9-993f-a861d3607f54&query=coffee
 2, https://www.dreamstime.com/animal-cliparts-image349183089
 Very happy barista: https://www.freepik.com/free-photo/cheerful-barista-with-smartphone-using-coffee-machine_2146685.htm#fromView=search&page=1&position=10&uuid=cbf3abb7-8e3b-4523-a88b-dd76e404c886&query=barista
