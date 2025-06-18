@@ -16,6 +16,17 @@ Coffee image is mixed with:
 Very happy barista: 
 https://www.freepik.com/free-photo/cheerful-barista-with-smartphone-using-coffee-machine_2146685.htm#fromView=search&page=1&position=10&uuid=cbf3abb7-8e3b-4523-a88b-dd76e404c886&query=barista
 
+Beans:
+
+1, https://www.freepik.com/free-vector/hand-drawn-coffee-label-design-template_33025885.htm#fromView=search&page=1&position=8&uuid=ec396777-0632-45ef-bb39-eca05fd4ec57&query=Coffee+Package+Mockup
+
+2, https://www.freepik.com/free-vector/hand-drawn-coffee-label-design-template_33025880.htm#fromView=search&page=1&position=13&uuid=ec396777-0632-45ef-bb39-eca05fd4ec57&query=Coffee+Package+Mockup
+
+3, https://www.freepik.com/free-vector/hand-drawn-coffee-label-design-template_33025871.htm#fromView=search&page=1&position=15&uuid=ec396777-0632-45ef-bb39-eca05fd4ec57&query=Coffee+Package+Mockup
+
+4, https://www.freepik.com/free-vector/hand-drawn-coffee-label-design-template_33025876.htm#fromView=search&page=1&position=3&uuid=ec396777-0632-45ef-bb39-eca05fd4ec57&query=Coffee+Package+Mockup
+
+
 Events & Newsletter: 
 
 1, https://www.freepik.com/free-photo/close-up-coffee-brewing-gadgets-wooden-bar-counter_8225456.htm#fromView=search&page=1&position=29&uuid=392019d5-cf9a-42cd-be84-01ae81fbb0ef&query=pour+over
