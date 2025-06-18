@@ -16,7 +16,7 @@ Coffee image is mixed with:
 Very happy barista: 
 https://www.freepik.com/free-photo/cheerful-barista-with-smartphone-using-coffee-machine_2146685.htm#fromView=search&page=1&position=10&uuid=cbf3abb7-8e3b-4523-a88b-dd76e404c886&query=barista
 
-Newsletter: 
+Events & Newsletter: 
 
 1, https://www.freepik.com/free-photo/close-up-coffee-brewing-gadgets-wooden-bar-counter_8225456.htm#fromView=search&page=1&position=29&uuid=392019d5-cf9a-42cd-be84-01ae81fbb0ef&query=pour+over
 
