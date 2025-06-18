@@ -6,25 +6,24 @@ Landing page background:
 
 https://www.freepik.com/premium-ai-image/cup-coffee-middle-coffee-beans-full-background_143290079.htm
 
-Coffee image is mixed with:
+Coffee landing image is made by me, using:
 
-
-1, https://www.freepik.com/free-vector/cafe-coffee-house-pattern-vector_3438011.htm#fromView=search&page=1&position=12&uuid=e22ccf75-6707-4df9-993f-a861d3607f54&query=coffee
-
+1, https://www.freepik.com/free-photo/close-up-view-dark-fresh-roasted-coffee-beans-coffee-beans-background_10427093.htm
 2, https://www.dreamstime.com/animal-cliparts-image349183089
+3, https://www.freepik.com/free-psd/close-up-coffee-mug-isolated_336469145.htm
 
 Very happy barista: 
-https://www.freepik.com/free-photo/cheerful-barista-with-smartphone-using-coffee-machine_2146685.htm#fromView=search&page=1&position=10&uuid=cbf3abb7-8e3b-4523-a88b-dd76e404c886&query=barista
+https://www.freepik.com/free-photo/cheerful-barista-with-smartphone-using-coffee-machine_2146685.htm
 
 Beans:
 
-1, https://www.freepik.com/free-vector/hand-drawn-coffee-label-design-template_33025885.htm#fromView=search&page=1&position=8&uuid=ec396777-0632-45ef-bb39-eca05fd4ec57&query=Coffee+Package+Mockup
+1, https://www.freepik.com/free-vector/hand-drawn-coffee-label-design-template_33025885.htm
 
-2, https://www.freepik.com/free-vector/hand-drawn-coffee-label-design-template_33025880.htm#fromView=search&page=1&position=13&uuid=ec396777-0632-45ef-bb39-eca05fd4ec57&query=Coffee+Package+Mockup
+2, https://www.freepik.com/free-vector/hand-drawn-coffee-label-design-template_33025880.htm
 
-3, https://www.freepik.com/free-vector/hand-drawn-coffee-label-design-template_33025871.htm#fromView=search&page=1&position=15&uuid=ec396777-0632-45ef-bb39-eca05fd4ec57&query=Coffee+Package+Mockup
+3, https://www.freepik.com/free-vector/hand-drawn-coffee-label-design-template_33025871.htm
 
-4, https://www.freepik.com/free-vector/hand-drawn-coffee-label-design-template_33025876.htm#fromView=search&page=1&position=3&uuid=ec396777-0632-45ef-bb39-eca05fd4ec57&query=Coffee+Package+Mockup
+4, https://www.freepik.com/free-vector/hand-drawn-coffee-label-design-template_33025876.htm
 
 Before/After:
 1, https://www.freepik.com/free-photo/disappointed-displeased-man-keeps-hands-head-smirks-face-suffers-from-headache-has-dissatisfied-expression_11488971.htm#fromView=search&page=1&position=2&uuid=91266fb7-5261-4384-b08b-54c9c34ea3d6&query=%40wayhomestudio+sad+yellow
